@@ -1,6 +1,7 @@
 ![IMG_4901](https://github.com/user-attachments/assets/e7f3272a-cf43-4cf1-bf57-aadc7b679dbd)
 
 ♡ Basic info bout me!! ♡
+
 Prefered name + nicknames: Belphegor, Belphie {only if close}, any pet names {Kai + spookie + vamp + emi only}
 
 sexuality: Gay, Demisexual, Asexual, Poly
