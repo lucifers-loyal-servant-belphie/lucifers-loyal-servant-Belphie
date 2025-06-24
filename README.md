@@ -4,7 +4,7 @@
 
 Prefered name + nicknames: Belphegor, Belphie {only if close}, any pet names {Kai + spookie + vamp + emi only}
 
-sexuality: Gay, Demisexual, Asexual, Poly
+sexuality: Bisexual, Demisexual, Asexual, Poly
 
 Age: a secret ^^
 
