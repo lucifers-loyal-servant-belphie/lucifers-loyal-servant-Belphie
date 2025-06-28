@@ -40,7 +40,11 @@ Warning; I have severe social anxiety but once we get to know eachother I'm chil
 
 I block/hide freely; DNC ANY OF OUR SKINS!!! You may take inspo but please ask.
 
-![IMG_4911](https://github.com/user-attachments/assets/df547ba9-6908-4ebd-8d81-56799553fab5)
+![IMG_4913](https://github.com/user-attachments/assets/1aebcaee-286a-4645-ad12-65a38b41b1c6)
+
+
+![IMG_4914](https://github.com/user-attachments/assets/b2b1a5b6-4577-45ec-ad62-6f24454f612a)
+![IMG_4915](https://github.com/user-attachments/assets/34ca6078-4654-459d-8fb6-eba598cf4dae)
 
 <!--
 **lucifers-loyal-servant-belphie/lucifers-loyal-servant-Belphie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
