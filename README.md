@@ -4,7 +4,7 @@
 
 Prefered name + nicknames: Belphegor, Belphie {only if close}, any pet names {Kai + spookie + vamp + emi only}
 
-Pronouns: He/they
+Pronouns: He/they/demon/demonself
 
 sexuality: Bisexual, Demisexual, Asexual, Poly
 
